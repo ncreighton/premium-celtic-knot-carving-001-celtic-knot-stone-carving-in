@@ -1,0 +1,2 @@
+# premium-celtic-knot-carving-001-celtic-knot-stone-carving-in
+Tired of tracing the same tired knot patterns that never quite fit your stone? Stop searching for 'close enough' and start carving designs that are uniquely yours.  This Hub gives you the underlying geometry and design logic behind authentic Celtic interlace, so you can generate infinite custom knots that flow perfectly on any surface. Instead of a
